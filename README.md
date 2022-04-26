@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kulsoegg
+- 👀 I’m interested in programming and layout
+- 🌱 I’m currently learning 9th grade
+- 💞️ I’m looking to collaborate on - any beneficial for both of us
+- 📫 How to reach me
+- My email - kulasovega@gmail.com
